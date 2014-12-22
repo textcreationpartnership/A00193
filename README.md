@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-¶ Interrogatories to bee enquyred of by the Churche-wardens and Sworne-menne within the Dioceſſe of 
+
 #####Body#####
 〈2 pages missing〉from the Archdeacons iuriſdiction) exhibited a true Certificate in writing, vnder t
     _ The Tenour of the Othe, miniſtred to the Church-wardens and Sworn-men.
